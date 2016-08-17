@@ -1,1 +1,1 @@
-# Score_Changer
+Vallahi sadece akademik amacli :)
